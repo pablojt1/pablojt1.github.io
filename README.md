@@ -47,9 +47,8 @@ Santa María del Paramo, León | 06/2022 – 09/2022
 2022- Actualidad
 *	Tareas de gestión de equipos, tiempos, proveedores y finanzas en las fiestas locales de San Esteban de Villacalbiel.
 
-## Expresiones de Gratitud 🎁
+## Extras 🎁
 
-* Comenta a otros sobre este proyecto 📢
-* Invita una cerveza 🍺 o un café ☕ a alguien del equipo. 
-* Da las gracias públicamente 🤓.
-* etc.
+* Disponibilidad inmediata 📢
+* Afterworks divertidos con cañita 🍺 o un café ☕, soy muy sociable. 
+* Disponible de forma voluntaria para ongs u otras organizaciones donde pueda aportar aprendiendo 🤓.
