@@ -1,5 +1,5 @@
 #Pablo Javares Tejedor
-[![Linkedin]((https://thumbs.dreamstime.com/b/linkedin-bot%C3%B3n-social-popular-del-icono-de-los-medios-en-fondo-blanco-aislado-transparente-154683363.jpg))]((https://www.linkedin.com/in/pablo-javares-tejedor-143752135/))
+[Linkedin](https://www.linkedin.com/in/pablo-javares-tejedor-143752135/)
 
 _Graduado en ingeniería informática con experiencia real en SAP Analytics Cloud y SAP BW, apasionado de la tecnología, el análisis de datos y la programación; busca **oportunidades junior en el desarrollo de software, el análisis de datos o la consultoría**._
 
